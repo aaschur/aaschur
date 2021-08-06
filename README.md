@@ -6,7 +6,7 @@
   - traveling
   - fishing :fish:
   - hanging with friends :friends:
-  - MSU Spartans :spartan:
+  - MSU Spartans
   - Detroit Tigers  :tiger:  
    
  🌱 I’m currently learning:
