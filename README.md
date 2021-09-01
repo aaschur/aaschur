@@ -5,7 +5,7 @@
   - going on walks :walking: 
   - traveling
   - fishing :fish:
-  - hanging with friends :friends:
+  - hanging with friends :grin :grin:
   - MSU Spartans
   - Detroit Tigers  :tiger:  
    
